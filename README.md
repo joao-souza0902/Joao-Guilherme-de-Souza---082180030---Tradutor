@@ -1,0 +1,1 @@
+# Joao-Guilherme-de-Souza---082180030---Tradutor
